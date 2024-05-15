@@ -10,3 +10,7 @@ Borates are being used more and more in the conservation of wooden structures an
 
 
 ![](./borateStory.jpg)
+
+
+
+contact Gladstone Rose (gladstone28@hotmail.com) 876-999-5673
